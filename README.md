@@ -1,2 +1,2 @@
 # theeverydayman.github.io
-The adventures of Everyday-man
+The amazing adventures of Everyday-man
